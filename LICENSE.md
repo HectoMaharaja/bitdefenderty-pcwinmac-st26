@@ -1,4 +1,4 @@
-# 
+# Leve Bitdefender Total Security plugins para Mac OS | Novo Bitdefender Total Security plugins para PC Windows. Com monitoramento em tempo real e notas seguras — otimizado para máximo desempenho em cada plataforma.
 
 
 
